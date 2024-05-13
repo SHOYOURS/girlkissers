@@ -1,3 +1,8 @@
-![1](https://64.media.tumblr.com/9dee692fa279a740207401c15bcec698/7fa768b238afea29-dc/s2048x3072/fbe81c15531dabfd5f3b1f53cf34949e8f38683e.pnj)
-![1](https://64.media.tumblr.com/e4fb53af27018d67f52644e173b56790/7fa768b238afea29-32/s1280x1920/f6577b4117b7ce096452b58d5ef6f164e60f7f75.gifv)
-♡ᴗ ᴗ） :⠀**R**ei 　＃　𓂃　**she** ⠀him
+![1](https://64.media.tumblr.com/59ff53e1fcaf74b1ba28d76dd96ac550/f942b374dcbab6b6-20/s1280x1920/c15429b810f0b251e6190da343a4626f3aa3c5cc.pnj) 
+![Tumblr_l_4999558658539](https://github.com/girlkissers/girlkissers/assets/169412737/b4d1df68-735d-4a3c-b4de-7efccd6c3c53)
+
+
+
+
+﹒**she** ノ him — lesbian ⠀**ta**ken ⊹ ₊˚  ⠀bulgarian + eng ⠀꒰ nb ⠀fem ꒱ ⠀jan 5th 
+
