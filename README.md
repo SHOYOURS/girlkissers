@@ -1,6 +1,2 @@
-![alttext](https://i.ibb.co/Wvrh27j/Tumblr-l-119602438116760.png)
-![alttext](https://i.ibb.co/TgSM6W0/Tumblr-l-118931350961625.gif)
-౨ৎ　***S***OL.　₊　 ***LUCILLE*** ⠀︵   ⠀fem terms ⠀**16** ⠀𓎠𓎠𓎠　c+h **OK** — pref w2i !⠀⠀☆ ⠀find me at **hyv pjsk** nd **twst area** ⠀^_< ⠀ ⠀**rmking** rentry . .
-![alttext](https://i.ibb.co/2kwTyS4/Tumblr-l-121520830421119.png)
- ⠀   **[HELP PALESTINE](https://rentry.co/HELP-PALESTINE)** ⠀☆𓂃   ⠀ **[GUESTBOOK](https://polyniigo.123guestbook.com/)**
-![Tumblr_l_121912261133223](https://github.com/girlkissers/girlkissers/assets/169412737/c570014c-347d-4459-baa0-9b4885072ed3)
+![1](https://64.media.tumblr.com/9dee692fa279a740207401c15bcec698/7fa768b238afea29-dc/s2048x3072/fbe81c15531dabfd5f3b1f53cf34949e8f38683e.pnj)
+![1](https://64.media.tumblr.com/e4fb53af27018d67f52644e173b56790/7fa768b238afea29-32/s1280x1920/f6577b4117b7ce096452b58d5ef6f164e60f7f75.gifv)
