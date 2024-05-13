@@ -4,5 +4,5 @@
 
 
 
-﹒**she** ノ him — lesbian ⠀**ta**ken ⊹ ₊˚  ⠀bulgarian + eng ⠀꒰ nb ⠀fem ꒱ ⠀jan 5th 
+﹒**she** ノ him — lesbian ⠀**ta**ken ⊹ ₊˚  ⠀bulgarian + eng ⠀꒰ nb ⠀fem ꒱ ⠀jan 5th ⠀‧ ⠀read **carrd** 4 more info ^_^
 
